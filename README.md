@@ -11,5 +11,4 @@ As a data analyst, I will contribute valuable insights and recommendations to th
 My involvement as a data analyst is vital in demonstrating our company's capabilities and distinguishing it from other competitors. By delivering meticulous and insightful analysis, I aim to enhance our company's chances of being selected for this prestigious project.
 
 Final Presentation Link: 
-
 https://tinyurl.com/2u6n35s7 
